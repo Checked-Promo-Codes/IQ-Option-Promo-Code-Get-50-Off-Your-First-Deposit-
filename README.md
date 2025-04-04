@@ -6,6 +6,8 @@ Looking for a way to **maximize your trading funds**? Use the **[DFD8](https://s
 
 That means **lower initial investment, more trading opportunities, and a smarter way to start your trading journey**!  
 
+<a target="_blank" href="https://affiliate.iqbroker.com/redir/?aff=422157&aff_model=revenue&afftrack=kostya"><img alt="banner image" src="https://static.cdnaffs.com/files/storage/public/5d/4c/2dc4b5dc75d6b1f8i4.gif" width="468" height="60" /></a> 
+
 ---
 
 ## 🛠 How to Claim Your IQ Option 50% First Deposit Discount  
@@ -51,6 +53,7 @@ Redeeming your **DFD8 promo code** is quick and hassle-free:
 <li><a href="https://github.com/Checked-Promo-Codes/Deriv-s-100-Deposit-Bonus-Fast-Track-Your-Trading-Success-">Deriv’s 100% Deposit Bonus</a></li>
   </ul>
 ---
+<a target="_blank" href="https://affiliate.iqbroker.com/redir/?aff=422157&aff_model=revenue&afftrack=kostya"><img alt="banner image" src="https://static.cdnaffs.com/files/storage/public/5d/41/a70b147ba7a8e1d2c3.jpg" width="1200" height="628" /></a> 
 
 ## 📈 Why Trade on IQ Option?  
 
