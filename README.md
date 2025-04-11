@@ -74,3 +74,9 @@ IQ Option is a **trusted and user-friendly trading platform**, known for its **i
 IQ Option makes trading **affordable and accessible** with its exclusive **first deposit discount**. By using promo code **DFD8**, you can **save 50%** on your **initial deposit** and start trading with **less risk**.  
 
 📢 **Don't miss out! Register on IQ Option today and enjoy a 50% discount on your first deposit!** 🚀  
+<h3>Follow us in Social Media</h3>
+<ul>
+<li><a href="https://github.com/Checked-Promo-Codes">Github</a></li>
+<li><a href="https://mirror.xyz/0xaFcA0DCAfB999A248e24C9FFCA942c9fbC17B19C">Mirror.xyz</a></li>
+<li><a href="https://x.com/pocketoption100">Twitter</a></li>
+</ul>
