@@ -68,11 +68,11 @@ IQ Option is one of the **best trading platforms for beginners and professionals
 ✔ **Fast Withdrawals & Deposits** – Reliable and secure transaction methods.  
 ✔ **Advanced Trading Features** – Charts, indicators, and market analysis tools included.  
 
-✅ Whether you're into binary options, forex, or crypto trading, IQ Option offers the right environment to trade smarter in 2025.  
-
----
+✅ Whether you're into binary options, forex, or crypto trading, IQ Option offers the right environment to trade smarter in 2025.
 
 [>>>Claim your first deposit bonus via official site IQ Option<<<](https://smartthriftfinder.com/iq-option-kostya)
+
+---
 
 ## 🔥 Final Thoughts  
 
