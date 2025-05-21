@@ -19,7 +19,7 @@ Redeeming your **IQ Option coupon code (DFD8)** is quick and easy:
 3️⃣ **Enter the Promo Code DFD8** – Apply the code before confirming your deposit.  
 4️⃣ **Enjoy Your 50% Trading Bonus!** – Your bonus will be credited automatically.  
 
-💰 **Example:** If you were planning to deposit **$100**, you'll only need to deposit **$50** to get full trading power — thanks to this exclusive **binary options bonus offer**.  
+💰 **Example:** If you were planning to deposit **75**, you'll only need to deposit **$50** to get full trading power — thanks to this exclusive **binary options bonus offer**.  
 
 ---
 
